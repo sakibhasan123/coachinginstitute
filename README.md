@@ -1,1 +1,1 @@
-# coachinginstitute
+# Coaching Institute
